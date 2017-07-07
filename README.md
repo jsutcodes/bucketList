@@ -18,7 +18,7 @@
 16. Learn how to play guitar.
 17. Vist New York City. 
 18. do something big/extravagent for my parents. 
-19. 
+19. make myself a website
 20.
 
 
