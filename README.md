@@ -20,6 +20,7 @@
 18. do something big/extravagent for my parents. 
 19. make myself a website
 20. create a lesson plan for kids to use code. [miecraft/ advance example. show them how javascript character is made]
+21. Stay at the stanley hotel. 
 
 
 
