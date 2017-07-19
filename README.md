@@ -22,6 +22,7 @@
 20. create a lesson plan for kids to use code. [miecraft/ advance example. show them how javascript character is made]
 21. Stay at the stanley hotel. 
 22. Go to London and walk around while listening to "London Calling" (Preferably in front of Big Ben.)
+23. get a Nice Fitting tux. 
 
 
 
