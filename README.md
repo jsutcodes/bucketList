@@ -4,17 +4,18 @@
 2. Go on an Alaskan Cruise
 3. spend a weekend camping by myself
 4. take a solo trip someplace and explore
-5. TRavel to Canada 
+5. Travel to Canada 
 6. grow out my beard really long
 7. See one (or more) of the 7 wonders of the world
 8. go to a comicon/twitchcon/ some nerdy conference. 
 9. get in good shape again (or at least eat better and workout more).
-10. teach Coar new tricks. 
+10. teach Cora new tricks. 
 11. climb a 14-er. 
 12. Go kayaking
 13. Get a patent for something (work related)
 14. design a pattern for some coding project
 15. Write a book
+16. Publish a Math book online, that has tools, and problems for kids (elemtrary, middle school, high school)?
 16. Learn how to play guitar.
 17. Vist New York City. 
 18. do something big/extravagent for my parents. 
