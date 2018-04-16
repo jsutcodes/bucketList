@@ -22,9 +22,10 @@
 19. make myself a website
 20. create a lesson plan for kids to use code. [miecraft/ advance example. show them how javascript character is made]
 21. Stay at the stanley hotel. 
-22. Go to London and walk around while listening to "London Calling" (Preferably in front of Big Ben.)
-23. get a Nice Fitting tux. 
-24. Become a tourist in the Town I live in. ( tube the poudre, ghost tour in FortCollins, Local restraunt. can we keep this down to 100$ day?)
+22. Go backpacking for a weekend
+23. Go to London and walk around while listening to "London Calling" (Preferably in front of Big Ben.)
+24. get a Nice Fitting tux. 
+25. Become a tourist in the Town I live in. ( tube the poudre, ghost tour in FortCollins, Local restraunt. can we keep this down to 100$ day?)
 
 
 
