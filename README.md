@@ -27,6 +27,6 @@
 24. get a Nice Fitting tux.
 25. Take a train someplace.
 26. Become a tourist in the Town I live in. ( tube the poudre, ghost tour in FortCollins, Local restraunt. can we keep this down to 100$ day?)
-
+27. go to gilroy garlic festival in California 
 
 
