@@ -1,6 +1,16 @@
 # bucketList
 
-1. walk the Golden Gate Bridge
+1. Visit famous Bridges:
+    - ~~Walk the Golden Gate Bridge (CA)~~
+    - Brooklyn bridge (NY)
+    - George Washinton Bridge (NY)
+    - Sunshine Skyway Bridge (FL)
+    -  Mackinac Bridge (MI)
+    - Royal Gorge Bridge (CO)
+    - Bridge of the Gods (OR)
+    - Seven Mile Bridge (FL)
+    - Tacoma Narrows Bridge (WA)
+    - Ambassadors Bridge (MI)
 2. Go on an Alaskan Cruise
 3. spend a weekend camping by myself
 4. take a solo trip someplace and explore
@@ -26,7 +36,7 @@
 23. Go to London and walk around while listening to "London Calling" (Preferably in front of Big Ben.)
 24. get a Nice Fitting tux.
 25. Take a train someplace.
-26. Become a tourist in the Town I live in. ( tube the poudre, ghost tour in FortCollins, Local restraunt. can we keep this down to 100$ day?)
+26. Become a tourist in the Town I live in. ( tube the poudre, ghost tour in Fort Collins, Local restraunt. can we keep this down to 100$ day?)
 27. go to gilroy garlic festival in California 
 
 
