@@ -2,7 +2,7 @@
 
 1. Visit famous Bridges:
     - ~~Walk the Golden Gate Bridge (CA)~~
-    -Hells Gate Bridge (NY)
+    - Hells Gate Bridge (NY)
     - Brooklyn bridge (NY)
     - George Washinton Bridge (NY)
     - Sunshine Skyway Bridge (FL)
