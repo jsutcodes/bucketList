@@ -19,7 +19,7 @@
 7. See one (or more) of the 7 wonders of the world
 8. go to a comicon/twitchcon/ some nerdy conference. 
 9. get in good shape again (or at least eat better and workout more).
-10. teach Cora new tricks. 
+10. Be debt Free by the end of 2020 (No student Loans and no car loan)
 11. climb a 14-er. 
 12. Go kayaking
 13. Get a patent for something (work related)
@@ -38,5 +38,6 @@
 25. Take a train someplace.
 26. Become a tourist in the Town I live in. ( tube the poudre, ghost tour in Fort Collins, Local restraunt. can we keep this down to 100$ day?)
 27. go to gilroy garlic festival in California 
+28. teach Cora new tricks. 
 
 
