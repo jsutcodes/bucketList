@@ -40,5 +40,6 @@
 26. Become a tourist in the Town I live in. ( tube the poudre, ghost tour in Fort Collins, Local restraunt. can we keep this down to 100$ day?)
 27. go to gilroy garlic festival in California 
 28. teach Cora new tricks. 
+29. Learn how to use GIMP photo editor
 
 
