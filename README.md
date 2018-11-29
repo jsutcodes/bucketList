@@ -41,5 +41,6 @@
 27. go to gilroy garlic festival in California 
 28. teach Cora new tricks. 
 29. Learn how to use GIMP photo editor
+30. Spend a week/month cooking everything from scratch. (only fresh ingrdiants i.e. mkae own bread, sauce, etc)
 
 
